@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @surplus
-- 👀 I’m interested in FullStack Development and Ethical Hacking
+- 👀 I’m interested in Artificial intelligence 
 - 🌱 I’m currently learning something I don't want to say
 - 💞️ I’m looking to collaborate on intrested peoples with new project ideas
 - 📫 How to reach me insta id - @Surplus_Suman
